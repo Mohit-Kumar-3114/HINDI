@@ -1,4 +1,4 @@
-# अलंकार (Alankar) – Complete Notes for DSSSB TGT
+# अलंकार (Alankar)
 
 ## 1. अलंकार की परिभाषा (Definition of Alankar)
 

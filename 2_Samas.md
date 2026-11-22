@@ -1,4 +1,4 @@
-# समास (Samas) – Complete Notes for DSSSB TGT
+# समास (Samas)
 
 ## 1. समास की परिभाषा (Definition of Samas)
 

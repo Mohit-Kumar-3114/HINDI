@@ -1,5 +1,3 @@
-
-
 # वाक्य (Vakya)
 
 ## 1. वाक्य की परिभाषा (Definition of Vakya)

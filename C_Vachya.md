@@ -1,4 +1,3 @@
-
 # वाच्य (Vachya)
 
 ## 1. वाच्य की परिभाषा (Definition of Vachya)
